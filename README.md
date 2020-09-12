@@ -3,3 +3,5 @@
 - https://yadi.sk/d/SA79zM-u3MhNqt - А-14-17
 - https://cloud.mail.ru/public/dzgS/ZBQpnBxGu/ - Учебные материалы
 - http://yadi.sk/d/WeAccJ7g5aeZj?w=1
+- https://cloud.mail.ru/public/3HYZ/ysk6FFEDP
+- https://cloud.mail.ru/public/651f0c7da500/Учеба
